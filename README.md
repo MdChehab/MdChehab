@@ -34,4 +34,4 @@ I build and test software, and right now I design evaluation tasks for frontier 
 
 ## Contact
 
-[LinkedIn](https://linkedin.com/in/mouhannad-chehab) · mshehab2223@gmail.com
+[LinkedIn](https://www.linkedin.com/in/mouhannad-chehab-08a92b216/) · mshehab2223@gmail.com
